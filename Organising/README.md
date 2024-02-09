@@ -3,4 +3,4 @@
 ## Time: 10:30 am to 1 pm
 ## Venue: Pierre Hall, Le Corbusier Block, Chitkara University, Punjab
 
-Please find the credential URL to your certificates of participation.
+Please find the credential URL to your certificates of organisation.
